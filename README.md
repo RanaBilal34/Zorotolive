@@ -1,6 +1,6 @@
 How to Watch Korean Dramas for Free on Loklok Website
 
-If you're a fan of Korean dramas and looking for a place to stream your favorite shows without spending a dime, Loklok is a great option. Loklok offers a wide range of Korean dramas that you can enjoy for free. Here's a simple guide on how to access and watch Korean dramas on Loklok effortlessly.
+If you're a fan of Korean dramas and looking for a place to stream your favorite shows without spending a dime, Loklok is a great option. <a href="https://loklokapps.net">Loklok App </a> offers a wide range of Korean dramas that you can enjoy for free. Here's a simple guide on how to access and watch Korean dramas on Loklok effortlessly.
 
 1. Visit the Loklok Website
 First, navigate to the official Loklok website through your browser. Make sure you're visiting a legitimate version of the site to avoid issues with fake or malware-infested sites.
